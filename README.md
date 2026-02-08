@@ -1,2 +1,2 @@
-# thaeta-of-diamonds.github.io
+# www.the-spire.cc
 HI! I'm thaeta.
